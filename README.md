@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MUCHOKI-9
-- 👀 I’m interested in cyber security and data science 
+- 👀 I’m interested in cyber security  
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate on cyber secuty
+- 💞️ I’m looking to collaborate on cyber security
 - 📫 How to reach me :whatsapp 0746445171 email rapsonvictor@gmail.com
 - 😄 Pronouns: HE
 - ⚡ Fun fact: FAKE IT TILL YOU MAKE
